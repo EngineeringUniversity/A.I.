@@ -1,2 +1,2 @@
 # A.I.
-Ad: https://youtu.be/7httAwSHPsM Lander: Course: https://www.coursera.org/explore/genai-for-your-career
+Ad: https://youtu.be/7httAwSHPsM Lander: https://www.coursera.org/explore/genai-for-your-career?utm_medium=onlineads&utm_source=yt&utm_campaign=B2C_NAMER_generative-ai_coursera_FTCOF_explore_country-US-youtube-yt-prospecting-midfunnel-conversions&campaignid=21525213815&adgroupid=171176221091&device=c&keyword=&matchtype=&network=&devicemodel=&adposition=&creativeid=708050789688&hide_mobile_promo&gclid=Cj0KCQjwz7C2BhDkARIsAA_SZKaaXmn7aFOa4CtfrMmAkbjwgs79EFc0wgt1f-QIf_W3Fgn3ZqfQN8IaAimHEALw_wcB Course: https://www.coursera.org/explore/genai-for-your-career
